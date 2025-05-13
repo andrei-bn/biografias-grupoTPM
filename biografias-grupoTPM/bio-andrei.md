@@ -1,3 +1,1 @@
-oi, beleza, meu nome é andrei
-
-
+Meu nome é Andrei Matos e tenho 19 anos, gosto de jogar e de ler mangas, gosto de estudar sobre outras culturas fora do brasil como as culturas asiaticas e as europeia, meu sonho é me mudar para suíça e progredir na carreira de programaçao, minha materia favorita na facul e a de git.
