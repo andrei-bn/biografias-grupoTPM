@@ -1,0 +1,1 @@
+Eu sou o Gabriel, no tempo livre eu gosto de jogar no computador, minha comida preferida é hambúrguer, atualmente trabalho com tráfego de carros fortes e tenho 19 anos.
